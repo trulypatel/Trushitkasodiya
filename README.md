@@ -1,0 +1,2 @@
+# Trushitkasodiya
+Experienced Full Stack Developer with 6 month in the industry and high-level proficiency in the following programs: Java, Javascript, SQL, SQLIte, Flutter,Dart, and Php, expertise with HTML, Bootstraps and CSS seeks to establish a career as the Full Stack Developer for Renaissance Tech Developers. I am very familiar and experienced with Website development , Software development have worked with a good number of successful development teams.
